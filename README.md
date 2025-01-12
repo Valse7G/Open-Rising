@@ -1,1 +1,1 @@
-# Open-Rising
+# Open Rising
